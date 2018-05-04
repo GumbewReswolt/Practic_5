@@ -1,3 +1,4 @@
+<a target="_blank" href="https://calendar.google.com/event?action=TEMPLATE&amp;tmeid=NzZjOGY0NDc1ZHBsOTdoOWJrZ3ZuY29wNmsgZ3VtYmV3LnJlc3dvbHRAbQ&amp;tmsrc=gumbew.reswolt%40gmail.com"><img border="0" src="https://www.google.com/calendar/images/ext/gc_button1_uk.gif"></a>
 Програма святкувань Дня міста у Львові
 
 4 травня, п’ятниця
